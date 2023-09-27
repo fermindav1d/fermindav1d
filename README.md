@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @fermindav1d
-- 👀 I’m interested in video games and music
+- 👀 I’m interested in science
 - 🌱 I’m currently learning programming in general
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach meL email or social media
